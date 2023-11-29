@@ -3,6 +3,10 @@
 # 👋 About me
 A programmer & Designer from Indonesia! Kalimantan boy 🏝️. <br> Currently Study in IDN Boarding School 🏫 <br> Using A Macbook Pro M1 💻.<br>
 
+Check out my Website!
+
+https://eye-mans.github.io/Eye-M.github.io/
+
 FOLLOW MY SOCIAL!!!
 
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://www.instagram.com/lalui.man/) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/lalu-iman-abdullah-922471285/) 
