@@ -3,6 +3,8 @@
 # 👋 About me
 A programmer & Designer from Indonesia! Kalimantan boy 🏝️. <br> Currently Study in IDN Boarding School 🏫 <br> Using A Macbook Pro M1 💻.<br>
 
+Currently Learining ✋Swift🤚!
+
 Check out my Website!
 
 https://eye-mans.github.io/Eye-M.github.io/
