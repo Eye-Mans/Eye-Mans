@@ -1,4 +1,4 @@
-![HI! (2)](https://github.com/Eye-Mans/Eye-Mans/assets/140592472/a6ab11f6-dfca-47b7-9f68-ecdecaac0aa0)
+![IM LAlU IMAN ABDULLAH](https://github.com/Eye-Mans/Eye-Mans/assets/140592472/d1e43b90-21bc-4ea5-b0ea-5fcfbe4a8251)
 
 # 👋 About me
 A programmer & Designer from **Indonesia!** Kalimantan boy 🏝️. <br><br> Currently Study in **IDN Boarding School** 🏫 
