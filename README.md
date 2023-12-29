@@ -1,4 +1,5 @@
-![IM LAlU IMAN ABDULLAH (1)](https://github.com/Eye-Mans/Eye-Mans/assets/140592472/eb06aec2-ab08-43d6-9b11-da57eff80308)
+
+![IM LAlU IMAN ABDULLAH (2)](https://github.com/Eye-Mans/Eye-Mans/assets/140592472/c74d9fe7-7332-4c28-bba0-85d6450a27d6)
 
 
 # 👋 About me
