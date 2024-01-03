@@ -11,10 +11,6 @@ A programmer & designer from **Indonesia!** Kalimantan boy🏝️. <br><br> Curr
 
 
 
-**Check out my Website!**
-https://eye-mans.github.io/Eye-M.github.io/
-
-
 
 **FOLLOW MY SOCIAL!!!**
 
